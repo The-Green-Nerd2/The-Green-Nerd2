@@ -1,7 +1,7 @@
-- 👋🏽 Hi, I’m @The-Green-Nerd2, Can call me Green or Nerd, Currently 23 and failing at life (In style)
+- 👋🏽 Hi, I’m @The-Green-Nerd2, Can call me Green or Nerd, Currently 25 and failing at life (In style)
 - 👀 I’m interested in any and all tech/programming tbh. Now am I good? Definetly not but hey, a start is a start! Also really like Anime and Video Games. 
 - 🌱 I’m currently learning HTML, CSS, Linux, What I want to do in life and How to live.
-- 💞️ Engaged!
+- 💞️ Single
 - 📱 How to reach me: Most Social Medias I'm @The_Green_Nerd2 or a Similar variation 
 - 📫E-Mail: TheGreenNerd2@Proton.me
 - 😄 Pronouns: He/Him
